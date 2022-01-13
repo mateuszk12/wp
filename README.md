@@ -1,1 +1,1 @@
-Mateusz K
+Mateusz Krzyicki
